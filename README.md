@@ -1,0 +1,2 @@
+# yebycoin
+ 
